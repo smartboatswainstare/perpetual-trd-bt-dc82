@@ -1,4 +1,4 @@
-# 
+# instant binance futures bot executor is the best binance futures bot executor with grid-trading and low-frequency. Safe, reliable, and optimized for CEX, DEX, and algorithmic
 
 
 
